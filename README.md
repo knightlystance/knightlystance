@@ -43,8 +43,8 @@
 
 </details>
 
-![image](https://github.com/user-attachments/assets/ce27235b-a4af-4acc-ac27-f00e919ffb5e)
+![image](https://github.com/user-attachments/assets/40e0e205-5616-42c3-b5b2-82aa6cb9fe70)
 
-![image](https://github.com/user-attachments/assets/aded61d1-7765-4d9d-a8c9-dfe4312d5f06)
+![image](https://github.com/user-attachments/assets/0eae27bf-3580-4c25-b2bc-fe059d3a6838)
 
 <div align="center">
