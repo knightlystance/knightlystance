@@ -50,9 +50,13 @@
 
 𝒫awn / 𝒢ourdy / 𝒮oul # any pronouns 
 
-      ᛝ cudcomf at all times ( c+h hvy enc ) 
-      • dw fandom iwc / unf    
-      ᛝ mostly offtab / afk / waiting 4 oomfs
+
+
+    ᛝ cudcomf at all times ( c+h hvy enc ) 
+     • dw fandom iwc / unf    
+     ᛝ mostly offtab / afk / waiting 4 oomfs
+
+
 
 </div>
 
