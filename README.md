@@ -45,7 +45,7 @@
 
 ![image](https://github.com/user-attachments/assets/c485d293-ccd1-4e51-a295-28a0a86734ca)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Georgia&size=25&duration=4000&pause=1000&color=41F1D1&center=true&vCenter=true&width=850&lines=Oh+pink+5ive+pink+5ive+nasan+ka+na%3F;Ang+dali+mo+namang+pumalya;Hindi+ko+kayang+labanan+ang+kontrabida..;kapag+wala+ka.;Araw-araw+kang+iniisip..;Mula+pag+gising+hanggang+sa+pag-idlip..;Di+ba+sinabi+mong+ako%27y+hihintayin%3F;Mali+pala+mga+superhero%27y+sinungaling+din%21)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Georgia&size=25&duration=4000&pause=1000&color=41F1D1&center=true&vCenter=true&width=850&lines=Oh+pink+5ive+pink+5ive+nasan+ka+na%3F;Ang+dali+mo+namang+pumalya;Hindi+ko+kayang+labanan+ang+kontrabida..;kapag+wala+ka.;Araw-araw+kang+iniisip..;Mula+pag+gising+hanggang+sa+pag-idlip..;Di+ba+sinabi+mong+ako%27y+hihintayin%3F;Mali+pala+mga+superhero%27y+sinungaling+dinnn%21)](https://git.io/typing-svg)
 
 <div align="center">
 <table><tr><td>
