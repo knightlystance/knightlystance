@@ -43,7 +43,7 @@
 
 </details>
 
-![image](https://github.com/user-attachments/assets/40e0e205-5616-42c3-b5b2-82aa6cb9fe70)
+![image](https://github.com/user-attachments/assets/c485d293-ccd1-4e51-a295-28a0a86734ca)
 
 ![image](https://github.com/user-attachments/assets/0eae27bf-3580-4c25-b2bc-fe059d3a6838)
 
