@@ -45,6 +45,15 @@
 
 ![image](https://github.com/user-attachments/assets/c485d293-ccd1-4e51-a295-28a0a86734ca)
 
-![image](https://github.com/user-attachments/assets/0eae27bf-3580-4c25-b2bc-fe059d3a6838)
-
 <div align="center">
+<table><tr><td>
+
+𝒫awn / 𝒢ourdy / 𝒮oul # any pronouns 
+
+      ᛝ cudcomf at all times ( c+h hvy enc ) 
+      • dw fandom iwc / unf    
+      ᛝ mostly offtab / afk / waiting 4 oomfs
+
+</div>
+
+</td></tr></table>
